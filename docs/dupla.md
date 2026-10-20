@@ -1,2 +1,2 @@
-#Nomes da dupla
+#Nickolas de Souza e Giulia Souza
 
